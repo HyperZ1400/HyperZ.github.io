@@ -1,4 +1,4 @@
-# HyperZ.github.io
+# HyperZ1400.github.io
 
 Jake Ponczek, jcponczek@my.waketech.edu
 
